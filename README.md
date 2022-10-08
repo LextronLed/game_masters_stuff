@@ -1,0 +1,1 @@
+# Game master`s stuff
